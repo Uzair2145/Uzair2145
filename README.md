@@ -1,6 +1,6 @@
 ## Hi there! I'm Uzair
 
-I am an international Business Finance and Economics undergraduate at the University of Manchester (2025-2029), aspiring to build a career as a strategic investor in asset management. My backgrounnd combines rigorous quantitative problem solving backed by a perfect score of 100 in CBSE Mathematics - with hands-on audit experience and technical data analytics frameworks.
+I am an international Business Finance and Economics undergraduate at the University of Manchester (2025-2029), aspiring to build a career as a strategic investor in asset management. My background combines rigorous quantitative problem solving backed by a perfect score of 100 in CBSE Mathematics - with hands-on audit experience and technical data analytics frameworks.
 
 ---
 
