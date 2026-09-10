@@ -18,6 +18,7 @@ Data Analytics Training | Time Training Centre (July 2025- Sept 2025): Applied a
 ### ☘️  Leadership and Community Engagement:
 Social Media Manager | University of Manchester Indian Dance Society: Managing publicity, creating digital assets (trailers/posters), and collaborating on large-scale university events.
 Teaching & Outreach Volunteer | AngelXpress Foundation & WeBiz: Tutored students of grade 6-7 in mathematics over a 41-hour commitment and hosted workshops, sessions, and courses engaging over 100 students to expand commerce education.  
+Community Volunteer | Parivarthan Foundation and Kitab Organisation (November 2025): Supported Community paper drive initiatives by collection and routing 1600kg+ of recyclable waste to processing facilities to promote environement sustainability.
 
 
 ---
